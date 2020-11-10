@@ -1,3 +1,7 @@
+---
+title: "WARNING by Jenny Joseph"
+date: 2020-11-10
+---
 When I am an old woman I shall wear purple
 With a red hat which doesn’t go, and doesn’t suit me.
 And I shall spend my pension on brandy and summer gloves
